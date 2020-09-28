@@ -1,0 +1,2 @@
+# ezmun
+bo hînbûna gîtê
